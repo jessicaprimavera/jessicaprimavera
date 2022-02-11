@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @jessicaprimavera
+- 👋 Hi, I’m Jess
 - 👀 I’m interested in travel
 - 🌱 I’m currently learning italian
 - 💞️ I’m looking to collaborate on product management
